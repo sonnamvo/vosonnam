@@ -1,1 +1,1 @@
-# ngao eo ta dc
+# thang loz nao pha
